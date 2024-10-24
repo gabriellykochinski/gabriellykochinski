@@ -12,4 +12,5 @@ gabrielly.kochhinski@ecola.pr.gov.br
 
 @gabriellykochinski
 
-[![descrição do GIF](link GIF do Tenor)](https://media.tenor.com/xKg1OS6YF-cAAAAM/yoriichi-demon-slayer.gif)
+
+https://media.tenor.com/aSTkNPU60hcAAAAM/anime-demon-slayer.gif
